@@ -1,1 +1,1 @@
-# f99iijokes.github.io
+# f99iijokes
